@@ -1,2 +1,3 @@
 nama : Angelina Balqis Khansa
-nim : 2131710069
+nim : 213171006
+zoom hari ini menyenangkan 
